@@ -5,7 +5,7 @@ Psalm 119 א (ALEPH)
 :tags: Old Testament, Psalm 119
 :category: Psalms
 :summary: Happy are those whose way is blameless
-:date: 2014-11-24
+:date: 2014-11-29
 
 
 ..

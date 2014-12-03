@@ -5,7 +5,7 @@ Small of Stature
 :tags: New Testament
 :category: St. Luke's Gospel
 :summary: Luke 19:1-10, Jesus and Zacchaeus
-:date: 2014-11-25
+:date: 2014-12-02 06:00
 
 He entered Jericho and was passing through. And there was a man named
 Zacchae'us; he was a chief tax collector, and rich. And he sought to see who

@@ -4,7 +4,7 @@ Stabat Mater
 
 :tags: New Testament
 :category: Mary
-:date: 2014-11-28
+:date: 2014-12-02 08:00
 :summary: And a sword will pierce your own soul too.
 
 ..
