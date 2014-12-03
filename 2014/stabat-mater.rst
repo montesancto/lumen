@@ -112,46 +112,27 @@ Source: `www.stabatmater.info <http://www.stabatmater.info/txtintro.html>`_
 Literal
 '''''''
 
-The grieving Mother stood weeping beside the cross where her Son was hanging
-
-Through her weeping soul, compassionate and grieving, a sword passed.
-
-O how sad and afflicted was that blessed Mother of the Only-begotten!
-
-Who mourned and grieved and trembled looking at the torment of her glorious Child
-
-Who is the person who would not weep seeing the Mother of Christ in such agony?
-
-Who would not be able to feel compassion on beholding Christ's Mother suffering with her Son?
-
-For the sins of his people she saw Jesus in torment and subjected to the scourge.
-
-She saw her sweet offspring dying, forsaken, while He gave up his spirit
-
-O Mother, fountain of love, make me feel the power of sorrow, that I may grieve with you
-
-Grant that my heart may burn in the love of Christ my Lord, that I may greatly please Him
-
-Holy Mother, grant that the wounds of the Crucified drive deep into my heart.
-
-That of your wounded Son, who so deigned to suffer for me, I may share the pain
-
-Let me sincerely weep with you, bemoan the Crucified, for as long as I live
-
-To stand beside the cross with you, and gladly share the weeping, this I desire
-
-Chosen Virgin of virgins, be not bitter with me, let me weep with thee
-
-Grant that I may bear the death of Christ, the fate of his Passion, and commemorate His wounds
-
-Let me be wounded with his wounds, inebriated by the cross because of love for the Son
-
-Inflame and set on fire, may I be defended by you, Virgin, on the day of judgement
-
-Let me be guarded by the cross, armed by Christ's death and His grace cherish me
-
-When my body dies, grant that to my soul is given the glory of paradise. Amen
-
+| The grieving Mother stood weeping beside the cross where her Son was hanging
+| Through her weeping soul, compassionate and grieving, a sword passed.
+| O how sad and afflicted was that blessed Mother of the Only-begotten!
+| Who mourned and grieved and trembled looking at the torment of her glorious Child
+| Who is the person who would not weep seeing the Mother of Christ in such agony?
+| Who would not be able to feel compassion on beholding Christ's Mother suffering with her Son?
+| For the sins of his people she saw Jesus in torment and subjected to the scourge.
+| She saw her sweet offspring dying, forsaken, while He gave up his spirit
+| O Mother, fountain of love, make me feel the power of sorrow, that I may grieve with you
+| Grant that my heart may burn in the love of Christ my Lord, that I may greatly please Him
+| Holy Mother, grant that the wounds of the Crucified drive deep into my heart.
+| That of your wounded Son, who so deigned to suffer for me, I may share the pain
+| Let me sincerely weep with you, bemoan the Crucified, for as long as I live
+| To stand beside the cross with you, and gladly share the weeping, this I desire
+| Chosen Virgin of virgins, be not bitter with me, let me weep with thee
+| Grant that I may bear the death of Christ, the fate of his Passion, and commemorate His wounds
+| Let me be wounded with his wounds, inebriated by the cross because of love for the Son
+| Inflame and set on fire, may I be defended by you, Virgin, on the day of judgement
+| Let me be guarded by the cross, armed by Christ's death and His grace cherish me
+| When my body dies, grant that to my soul is given the glory of paradise. Amen
+ 
 
 Rhyming
 '''''''

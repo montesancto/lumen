@@ -1,8 +1,8 @@
 
-Psalm 119 א (ALEPH)
+Psalm 118 א (ALEPH)
 ===================
 
-:tags: Old Testament, Psalm 119
+:tags: Old Testament, Psalm 118
 :category: Psalms
 :summary: Happy are those whose way is blameless
 :date: 2014-11-29
