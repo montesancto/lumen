@@ -1,7 +1,7 @@
-Ladder of Perfection II.II, Chapter XI
-======================================
+Ladder of Perfection II.II.XI
+=============================
 
-:tags: The Ladder of Perfection
+:tags: The Ladder of Perfection, English Mystics
 :category: Imitation of Christ
 :date: 2014-12-04 13:00
 :author: William Hilton
@@ -89,5 +89,79 @@ and begging Him to do with them what He wills. In the same way, when they wish
 to love God, they think of Him, worship Him, and reverence Him as man,
 recalling the Passion of Christ or some other event in His earthly life.
 Nevertheless, when they do this they are deeply stirred to the love of God.
+
+Such devotion is good and inspired by grace, but it is much inferior to the
+exercise of the understanding, when grace moves the soul to contemplate God in
+Man. For there are two natures in our Lord, that of God and that of Man. And
+as the divine nature is higher and nobler than the human, so the soul's
+contemplation of the Godhead in the humanity of Jesus is more exalted, more
+spiritual, and more valuable than the contemplation of His humanity alone,
+whether the soul is thinking of His humanity as passible or glorified. For the
+same reason the love felt by a soul when grace enables it to contemplate God
+in man is more exalted, more spiritual, and more valuable than the fervour of
+devotion aroused by the contemplation of Jesus' humanity alone, however strong
+the outward signs of theis love. For this latter love is a natural love, and
+the former a spiritual love; and our Lord does not reveal Himself to the
+imagination as He is, for frailty of man's nature is such that the soul could
+not endure His glory.
+
+Nevertheless, in order that the devotion of those souls that are incapable of
+such elevated contemplation of the Godhead should not be misdirected, but be
+comforted and strengthened by some form of interior contemplation of Jesus to
+forsake sin and the love of the world, God tempers the ineffable light of His
+divinity and cloaks it in the bodily form of Jesus's humanity. He reveals it
+in this way to the inward vision of the soul, and sustains it spiritually
+through the love of His precious humanity. This love is so potent that it
+destroys all love of evil in the soul, and gives it strength to endure bodily
+penance and other physical hardships whenever necessary for the love of Jesus.
+This is the way in which the Lord Jesus watches over a chosen soul and shields
+it from the flames of worldly love. For just as a shadow is formed by light
+falling on a solid object, so this spiritual shadow is cast over a devout soul
+by the blessed and ineffable light of God's Being and the human nature united
+to it. Of this shadow the prophet says: 
+
+    Spiritus ante faciem nostram Christus Dominus: sub umbra eius vivemus
+    inter gentes...
+
+    -- Lam. 4:20
+
+That is, our Lord Jesus in His divine nature is a spirit that cannot be seen by
+us while we live in the flesh; we must therefore live under the shadow of his
+human nature, as long as we are here. But although it is true that this love
+which depends upon the imagination is good, nevertheless a soul should desire
+to have a spiritual love and understanding of His divine nature, and all other
+bodily contemplations are but means of leading a soul to this. I do not say
+that we should separate the divine nature of Christ from the human, but that we
+should love Jesus both as God and man, for in Him God is united to man, and
+man to God; but this love must be spiritual, not carnal.
+
+Our Lord taught this lesson to Mary Magdalen, who was called to be a
+contemplative, when He said:
+
+    Noli me tangere, nondum enim ascendi ad Patrem meum...Do not touch me, for
+    I have not yet ascended to my Father.
+
+    -- John 20:17
+
+That is to say, Mary Magdalen had an ardent love for our Lord before His
+Passion, but her love was more carnal than spiritual. She truly believed that
+He was God, but she did not love him primarily as God, for she was not capable
+of doing so at that time, so that she allowed all her affection and thought to
+dwell on Him as man. And our Lord did not blame her for this at the time, but
+greatly commended her. But when he had risen from the dead and appeared to
+her, she would have honoured Him with the same kind of love as she did before,
+had not our Lord forbidden her, saying 'Do not touch me'. That is, do not
+allow the love of your heart to dwell only on my human nature which you see
+with your bodily eyes, for in that form I am not yet ascended to my Father.
+That is, I am not equal to the Father, for in my human nature I am less than
+he. Do not touch me in my present state, but set your mind and love on that
+state in which I am equal to the Father, that is, in my divinity. Love me,
+know me and worship me as God and man, and not as man only. In this way you
+shall touch me, for I am both God and man, and the whole reason why I am to be
+loved and worshipped is that I am God who took the nature of man. So adore me
+in your heart and give me your love as God. Let your mind worship me as Jesus,
+God in man, supreme Truth, supreme Goodness, and blessed Life, for so I am.
+This, I think is what our Lord taught her, and this is what he teaches all
+other souls that are disposed and ready for contemplation.
 
 
